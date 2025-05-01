@@ -1,4 +1,4 @@
-## 100 dni do matury 𝐜𝐚ł𝐲  po Polsku (2025) Vider
+## 100 dni do matury 𝐜𝐚ł𝐲 za Darmo Vider
 
 ### .github
 
